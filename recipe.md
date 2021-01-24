@@ -10,7 +10,7 @@
 10. Cool Remove Cool
 11. Frosting Time!
 12. Combine and Blend
-13. Trim anf Frost
+13. Trim and Frost
 14. Heart Shape Cake Topper
 15. Cake Crumbs and Piping Bag 
 ....!!
